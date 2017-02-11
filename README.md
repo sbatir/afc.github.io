@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="R0064pL7MM7tHYz5iUiSZp6eU3NSQPLilQ9iI49CMKk" />
 ## We are the American Future Coalition
 
 "The world moves, and ideas that were once good are not always good." 
